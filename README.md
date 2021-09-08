@@ -11,5 +11,5 @@ My employment history is
 (2) Admin Executive at Logistics and Supply Chain Department at Htun Tauk Kyaw Zaw Trading Company (June 2017- March 2019)
 (3) Apprentince Marine Engineer at AP.Moller MAERSK (July 2016-May 2017)
 
-You can reach me via mr.sawaung@outlook.com or mr.sawaung1994@gmail.com.
+You can reach me via mr.sawaung1994@gmail.com.
 Nice to meet you all.
