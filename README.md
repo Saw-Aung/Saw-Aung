@@ -1,5 +1,5 @@
 Hi, I am Saw. 
 I finished my Master Degree(Logistics and Information Engineering) at Tokyo University of Marine Science and Technology.
-I was a MEXT (Monbukagakusho- Japanese Goverment Scholarship) Student.
-
-My research was "HUB LOCATION MODEL OF PLATOON FORMATION CENTER FOR TRUCK PLATOONING". 
+I had experience in creating Mathematical Algorithm.
+I am interested in Front-end web development technology.
+I uploaded some of my work in my github account.
